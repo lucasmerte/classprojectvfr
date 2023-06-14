@@ -9,4 +9,4 @@
 
 - Lucas Mertehikian
 
-![](/images/thumbnails/maize__thumbnail.jpg)
+![](/Yerba_Mate.jpg)
